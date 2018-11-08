@@ -11,7 +11,7 @@ Be expressive. You don't have to be literal. You are invited to be abstract.
 
 You must use images and you must use text. Do not use sound. You may use graphics, but you are to mainly use image and text and to choreograph them over time.
 
-I expect to see 2 pushes before the turning in the final.
+2 pushes before the turning in the final.
 
 Due Nov 15th
 
